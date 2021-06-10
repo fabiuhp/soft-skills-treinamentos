@@ -1,10 +1,6 @@
 # Soft skills
 
----
-
 # Semana 1
-
----
 
 ## Mentalidade de crescimento
 
